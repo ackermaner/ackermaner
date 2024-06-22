@@ -1,7 +1,8 @@
 dni → ___@ka1niseethemtts___
 
 (
-any pronouns , UTC +7 | esarn  100%
+feel free to hide, cuddle, cover etc. ! , UTC +7 | esarn  100%
  read **carrd** , straw byf/i *!!*
 )
+***copy, inspo with credits thank you!***
 > ‿͞‿͞‿͞‿͞‿͞    ୨୧   ‿͞‿͞‿͞‿͞‿͞
