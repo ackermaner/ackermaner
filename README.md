@@ -1,8 +1,9 @@
 
-## dni → @kaisenvv
+### dni → @kaisenvv
 	
-#### feel free to hide, cuddle, cover etc. ! , UTC +7 | esarn  100% | read **carrd** , straw byf/i *!!*
-<img src="https://files.catbox.moe/cfisqt.avif" width="600" height="300" border="10"/>
+###### | interact, cover, cuddle, hide, compliment, crown, boop, kiss, whisper & etc all u want |
+### | _w2i_ offtab sometimes | seasian | ~-18~ |  ***!!***
+#redbullracing  #vcarb #teamzhou
 
 ---
 
