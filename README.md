@@ -5,4 +5,4 @@
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　![](https://files.catbox.moe/x6arb5.gif) ꒰ [pronoun.cc](https://pronouns.cc/@archaeophobic) ꒱
 
-# DO NOT INTERACT WITH MY @kaisenvv
+# do not interact with me @kaisenvv kicks balls kicks punches beats up hits throwsw hands spits on
