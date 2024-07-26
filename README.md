@@ -1,11 +1,7 @@
 
-### dni → @kaisenvv
-	
-###### | interact, cover, cuddle, hide, compliment, crown, boop, kiss, whisper & etc all u want |
-### | _w2i_ offtab sometimes | seasian | ~-18~ |  ***!!***
-[pronoun.cc](https://pronouns.cc/@archaeophobic)
----
+　　　　　　　　　　　　　　　　![](https://files.catbox.moe/8sxplv.png)　
+#### 　　　　　　　　　　　　　　　　　*your* word and *my* word and *her* word is , **yesterday, today and tomorrow**
+#### 　　　　　　　　　　　　　　　　　　　　　　　　　　and twilight gives me an inner sanctity
 
-###### ***copy, inspo with credits thank you! (not required but appreciated)***
-###### ‿͞‿͞‿͞‿͞‿͞    ୨୧   ‿͞‿͞‿͞‿͞‿͞ 
-> tom felton as draco malfoy in pfp
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　![](https://files.catbox.moe/x6arb5.gif)　　　　　　　
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　꒰ [pronoun.cc](https://pronouns.cc/@archaeophobic) ꒱
