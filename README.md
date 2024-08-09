@@ -3,6 +3,6 @@
 #### 　　　　　　　　　　　　　　　　　*your* word and *my* word and *her* word is , **yesterday, today and tomorrow**
 #### 　　　　　　　　　　　　　　　　　　　　　　　　　　and twilight gives me an inner sanctity
 
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　![](https://files.catbox.moe/x6arb5.gif) ꒰ [pronoun.cc](https://pronouns.cc/@archaeophobic) ꒱
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　![](https://files.catbox.moe/x6arb5.gif) ꒰ [pronoun.cc](https://pronouns.cc/@archaeophobic) ꒱　　　　꒰ [rentry](https://rentry.co/hoard-typeshi) ꒱ 
 
 ## do not interact with me @kaisenvv kicks balls kicks punches beats up hits throwsw hands spits on
