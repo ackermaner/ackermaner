@@ -1,7 +1,7 @@
 
-　　　　　　　　　　　　　　　　![](https://files.catbox.moe/8sxplv.png)　
-#### 　　　　　　　　　　　　　　　　　*your* word and *my* word and *her* word is , **yesterday, today and tomorrow**
-#### 　　　　　　　　　　　　　　　　　　　　　　　　　　and twilight gives me an inner sanctity
+　　　　　　　　　　　　　![](https://files.catbox.moe/8sxplv.png)　
+#### 　　　　　　　　　　　　*your* word and *my* word and *her* word is , **yesterday, today and tomorrow**
+#### 　　　　　　　　　　　　　　　　　　　　　and twilight gives me an inner sanctity
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　꒰ [pronoun.cc](https://pronouns.cc/@archaeophobic) ꒱　　　　꒰ [rentry](https://rentry.co/hoard-typeshi) ꒱ 
 
