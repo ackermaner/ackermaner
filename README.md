@@ -1,3 +1,3 @@
 ![df](https://files.catbox.moe/rvjxkz.jpg)
-
-[rentry](https://rentry.co/hoard-typeshi)
+#### ⌣ - ⌣ - ⌣ ୨୧ ⌣ - ⌣ - ⌣
+[rentry](https://rentry.co/hoard-typeshi) ⌣⌣ [boundaries](https://pronouns.cc/@archaeophobic)
