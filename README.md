@@ -3,7 +3,7 @@
 <img src="https://files.catbox.moe/2v8cni.png" width="540" height="30">　　
 
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=804453)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[carrd](https://archeo.carrd.co/) ⌣⌣ [boundaries](https://pronouns.cc/@ackermaner)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[rentry](https://rentry.co/ragefueled) ⌣⌣ [boundaries](https://pronouns.cc/@ackermaner)
 <br />ㅤㅤ
 <br />w2iㅤ 𓎟𓎟𓎟 ㅤafk ,ㅤ offtab ㅤ&͟&͟⠀ㅤmultitasking  
 <br />feel free to crown , interact , cover etc. unless i say so
