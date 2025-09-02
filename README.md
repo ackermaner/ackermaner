@@ -8,3 +8,6 @@ https://rentry.co/ragefueled ㅤ ⌣⌣ㅤ https://pronouns.cc/@ackermaner
 <br />feel free to crown , interact , cover etc. unless i say so
 
 </p>
+<p align="center">
+    <img src="https://files.catbox.moe/c4i3hg.png"  width="300">
+</p>
