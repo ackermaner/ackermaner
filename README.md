@@ -1,5 +1,5 @@
 <p align="center">
-    <img src="https://files.catbox.moe/g4gwn4.gif"  width="300">
+    <img src="https://files.catbox.moe/g4gwn4.gif"  width="400">
 </p>
 <p align="center">
 https://rentry.co/ragefueled ㅤ ⌣⌣ㅤ https://pronouns.cc/@ackermaner
